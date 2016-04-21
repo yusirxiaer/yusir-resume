@@ -1,3 +1,3 @@
 # yusir-resume
-my resume
-please read my resume.
+
+please read my resume.thanks a lot.
